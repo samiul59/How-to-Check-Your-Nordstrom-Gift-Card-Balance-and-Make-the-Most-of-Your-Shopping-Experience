@@ -24,8 +24,6 @@ Knowing your gift card balance ensures that you're always prepared when shopping
 1. Check Your Nordstrom Gift Card Balance Online
 The easiest and fastest way to check your Nordstrom gift card balance is by visiting the Nordstrom website. Here’s how you can do it:
 
-Go to Nordstrom’s Official Website
-Visit www.nordstrom.com.
 
 Navigate to the Gift Card Section
 Scroll down to the bottom of the page, and under the "Customer Service" section, click on the link that says "Gift Cards."
